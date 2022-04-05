@@ -3,7 +3,7 @@
 ![Faculty picture](/himani_data/My%20Picture.jpg )  
 ### School of Allied Health science  
 **Designation**-Assistant Professor  
-CURRICULUM VITAE
+[CURRICULUM VITAE](himani_data/CURRICULUM%20VITAE.pdf)
 
 **Himani rawat**
 
