@@ -3,17 +3,16 @@
 ![Faculty picture](/himani_data/My%20Picture.jpg )  
 ### School of Allied Health science  
 **Designation**-Assistant Professor  
-span style="text-decoration:underline;">CURRICULUM VITAE</span>**
+CURRICULUM VITAE
 
 Himani rawat
 
-House no 462, gali no 3 ward no 15, Adarsh colony Palwal, Haryana
-
-Tel: (9541309525), (9671715520),  E- mail id:  himanirawat35@gmail.com
+Tel: (9541309525), (9671715520),  
+E- mail id:  himanirawat35@gmail.com
 
 **OBJECTIVE:**
 
-Seeking a position to utilize my knowledge, skills, and abilities in the industry that offers competitive environment, a true profession to put in the acquired knowledge and gain exposure to upcoming technologies while being resourceful, innovative and flexible.
+Seeking a position to utilize my knowledge, skills, and abilities in an organization that offers competitive environment, a true profession to put in the acquired knowledge and gain exposure to upcoming technologies while being resourceful, innovative and flexible.
 
 **EDUCATIONAL QUALIFICATION:**
 
@@ -164,26 +163,12 @@ Worked as Program coordinator for one year in Pulsus Healthtech (July 2019- Nove
 
 
         ·         Autoclave
-
-
         ·         Shaker incubator
-
-
         ·         Hot air oven
-
-
         ·         UV- Visible spectrophotometer
-
-
         ·          Gel docs
-
-
         ·          ELISA reader
-
-
         ·          PCR
-
-
         ·          Centifuges and ultrcentifuges
 
 **HOBBIES:**
