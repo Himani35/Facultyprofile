@@ -5,9 +5,9 @@
 **Designation**-Assistant Professor  
 CURRICULUM VITAE
 
-Himani rawat
+**Himani rawat**
 
-Tel: (9541309525), (9671715520),  
+Tel: (9541309525)  
 E- mail id:  himanirawat35@gmail.com
 
 **OBJECTIVE:**
