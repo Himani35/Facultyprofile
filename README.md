@@ -177,13 +177,10 @@ Worked as Program coordinator for one year in Pulsus Healthtech (July 2019- Nove
 
 **CO-CURRICULUM ACTIVITIES:**
 
-Participated in various college activities like  participated in poster presentation at college level.
-
-Member of NGO umeed a drop of hope
-
-Volunteering in world cultural fest in delhi organized by shri shri ravishankar ji
-
-Done an add on course in the role of biotechnology organized by gargi college, delhi University
+* Participated in various college activities like  participated in poster presentation at college level.
+* Member of NGO umeed a drop of hope
+* Volunteering in world cultural fest in delhi organized by shri shri ravishankar ji
+* Done an add on course in the role of biotechnology organized by gargi college, delhi University
 
 **STRENGTH:**
 
