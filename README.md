@@ -162,14 +162,14 @@ Worked as Program coordinator for one year in Pulsus Healthtech (July 2019- Nove
 **EQUIPMENT HANDELED:**
 
 
-        ·         Autoclave
-        ·         Shaker incubator
-        ·         Hot air oven
-        ·         UV- Visible spectrophotometer
-        ·          Gel docs
-        ·          ELISA reader
-        ·          PCR
-        ·          Centifuges and ultrcentifuges
+ * Autoclave
+* Shaker incubator
+* Hot air oven
+* UV- Visible spectrophotometer
+* Gel docs
+* ELISA reader
+* PCR
+* Centifuges and ultrcentifuges
 
 **HOBBIES:**
 
